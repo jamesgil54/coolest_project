@@ -1,1 +1,1 @@
-# This is my super cool awesome project. I am so excitedn to share it with you. 
+# This is my super cool awesome project. I am so excited to share it with you. 
